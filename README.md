@@ -1,6 +1,6 @@
 # vg-g5 gay2023永久域名网址：
 
-https://gay2023.com
+https://gay2023.com （被墙，国内访问需要梯子）
 
 ![image](https://github.com/yihuagongnet/vg-g5/assets/141849781/c182eebf-e360-4bb3-8f41-2f86e190c546)
 
