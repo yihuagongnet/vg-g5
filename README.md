@@ -14,6 +14,8 @@ https://gay2023.com （被墙，国内访问需要梯子）
 
 # vg-g5 gay2023最新域名网址：
 
+https://gay2019.quest （2023.8.16更新）
+
 https://gay2019.lat
 
 https://gay2019.cfd
